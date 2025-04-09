@@ -66,5 +66,5 @@ For questions, feedback, or collaborations, feel free to reach out:
 
 📧 Email: dubey.murli43@gmail.com
 
-💼 LinkedIn: [LinkedIN] [https://www.linkedin.com/in/murlidhar-dubey-7644a027b/]
+💼 LinkedIn: Murlidhar Dubey
 
